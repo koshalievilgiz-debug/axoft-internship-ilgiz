@@ -1,1 +1,0 @@
-# axoft-internship-ilgiz
